@@ -1,2 +1,0 @@
-# MentaSaiBhargav
-bjzbwqbz
